@@ -81,7 +81,7 @@ The executives are perticularly interested in understanding which product catego
 
 ### My goal is to provide value to the stakeholders and not just to build reports and dashboard. 
 
-Thank you 😂
+**_Thank you_** 😂
 
 
 
